@@ -1,1 +1,1 @@
-# Ducusaurus-cosmos
+# Ducusaurus-Cosmos
